@@ -4,7 +4,7 @@
 
 大连市第37长门
 #### Email
-sli[at]cumt.edu.cn
+gaoxin131421@qq.com
 
 #### Education
 东北财经大学本科金融科技在读
